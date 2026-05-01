@@ -6,7 +6,7 @@ The once solid, stamped dirt paths were now a mixture mof mud and blood, the bod
 Skylar didn't pause to check their faces, though he desperately wanted to.
 Even if he knew his brother-in-arms wasn't here, was safe, every one of these soldiers was someone else's brother.
 
-"I don't have time for this," he thought to himself .
+"I don't have time for this," he thought to himself.
 Blood was soaking through his shirt.
 Archer's blood.
 The old man didn't wiggle didn't protest the rough handling as Skylar leapt over a body rather than waste another precious moment going around.
@@ -43,12 +43,13 @@ He didn't have the energy, or time, to focus enough for the wnd to leave false t
 The enemy scouts would hopefully continue up the road for at least a short while before realizing that he'd left it.
 
 The old man shivered in Skylar's arms, each breath wheezing out of him as though it might be his last.
-"Do you know why I brought you into my squadron?" His eyes rolled wildly in their sockets before focusing on Skylar."The enemy proved for the first time that they had a counter to you, who had been our side's premier powerhouse for thirty years.
+"Do you know why I brought you into my squadron?" His eyes rolled wildly in their sockets before focusing on Skylar.
 
+"The enemy proved for the first time that they had a counter to you, who had been our side's premier powerhouse for thirty years.
 You wanted to make me the shield to your spear, so that you could continue to wield lightning against our enemies."
 
 The old man was silent for a long moment.
-"That is true but," he was interrupted by a great hacking cough.
+"That is true but-" he was interrupted by a great hacking cough.
 Blood spilled out of the corner of his lips at the end.
 "I took you on because your Weather Ward held back my lightning."
 
@@ -143,8 +144,7 @@ By creating a space between the lightning and it's target, your Boon, and your w
 "And you held for four seconds."
 
 Skylar had nothing to say to that.
-That changed...
-nothing really.
+That changed... nothing really.
 
 Archer must have read his mind because he said, "Boy, you held off the will of two who were higher rank than you.
 I would have been impressed alone if you had withstood that long against me alone with such a generalized counter Boon.
