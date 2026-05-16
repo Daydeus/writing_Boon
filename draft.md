@@ -1,6 +1,24 @@
-***
-# A Teacher's Death
+# The Ritual
+Skylar stood in a row amongst five other teenagers under the hot summer sun. The giant yellow orb had slowly been climaing its way to the apex and Skylar sweltered under its light.'
+"Noon can't come soon enough," he thought to himself.
+He'd been waiting two years for this opportunity, and was anxious to find his future path. Of course, his anxiwety likely had nothing on his father's. The old man had been waiting almost Skylar's entire life for this moment. This revelation.
+It was customary in Skylar's kingdom to seal a newborn's Boon granted to them by the World Spirit until they reached the age of majority to ensure the safty and proper use of the magic the world gSpirit granted.
+It wouldn't do for a child to harm themselves or others if granted an impressive boon when they were too young to control it. You couldn't reason with an infant.
+The other teenagers wre no different from Skylar. His best friend Artheur stood nedxt to him and shifted from foot to foot, while Lexie stood further down in line with her brother. Everyone waited for the priest to come from the inn. He had told them to arrive in the town's center at noon, and while they could have waited in the shade of any of the nearby buildings, the presence of the ritual had infected them already. Every so often, Skylar would straighten his back and stared ahead at the inn, forcing himself to un-wilt from the heat.
+Skylar wasn't a teribbly buig fan of the sun. When the sky grew dark and roiled with lightning was when he felt most alive. He'd often dreamt of what it would mean to one day fly througha storm, to hear the hevenly booms of tunder from a step away rather than the oud sounds from the ground.
+He was broken from his day dreams by the sight of the inn door opening. The priest stepped out and the brass buttons on his black smock gleamed. His hat had tassels running down each side in matching bronze thread and his face looked expectantly at Skylar and his friends.
+He strde up slowly, meeting each of their eyes. "Are you ready to unlock the potential grantd to you by our great Spirit?"
+One by one, Skylar and the others nodded solemnly.
+The priest continued striding toward them, crossing the clearning until he stood directly before Lexie. His eyes began to burn the same bronze as his suit's accents. "Lexie Marls, do you swear to uphold the tenaets put forth by the Spirt's Apostles and to always use your power to defend this world in whatever way you can?"
+Lexieie barely stuturred when she adnsered. "I swear."
+When it was Skylar's turn, he swore the oath and felt a great pressure descend upon him from above. The prescense of the Great World Spirti saturated him, leaving him gasping as he felt something sear itself into his mind. The words were white-hot and he daidn't dare think about them for a long while. His mind blanked for minutes before he returned to himself and with a hesitant mental touch, rasped the addition to his mind. [Weather Ward].
+Skylar felt the Great Spirit leave him and opened his eyes, only to see that no time had passed. Everyone stood just as they had before the priest called upon the spirit, and the man in question was already moving to the final person in line to finish the ritual.
+Skylar touched again the words siting in his mind, feeling them out. Slowly, information trickled out of the word the longer he focused onit.
+[Weather Ward] - You may forbid the presence of weather effects in the space around you.
+While he was in awe of the ovbious magic of the Boon's presence in his mind, and he could feel the mental toggle that would allow him to active it as he pleased, a chasm opened up in his guts.
+"This was NOT a combat ability." he evaluated. "This is an ability a farmer would be greatful for, even ecstatic." Skylar though his father was a farmer now, had ambitions. His father had hopes ofr Skylar's future. And this Boon, while fantastic, did nothing to aide him in that journey. Skylar's throat tightened at the thought of sharing his boon with his father. The path forward, as narrow and hazardous as it was already, just grew significantly more difficult.
 
+# A Teacher's Death
 Skylar held the old man close to him as he raced across the ground.
 The once solid, stamped dirt paths were now a mixture mof mud and blood, the bodies of fallen soldiers strewn about.
 Skylar didn't pause to check their faces, though he desperately wanted to.
