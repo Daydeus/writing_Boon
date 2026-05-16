@@ -73,7 +73,7 @@ The old man didn't wiggle didn't protest the rough handling as Skylar leapt over
 
 He looked down briefly to check if Archer was still conscious.
 He was but his face was like carved stone, a silent grimace that spoke to the pain of his wounds.
-Skyler refocused on his surrounding, to to attempt to move faster.
+Skylar refocused on his surrounding, to to attempt to move faster.
 Just in time too, as his ears caught what his eyes had missed, the sound of a bow string drawn taut.
 
 Skylar dove forward into a graceless roll, loosing Archer in the process.
@@ -94,7 +94,7 @@ He unceremoniously scooped him up and set off at a brutal pace, nothing like the
 "Kill me and take my boon to my protege."
 
 "No," Skylar grunted." He focused on speed now, knowing that a trail wouldn't matter now that they  had a general idea of the two's location.
-"I will deliver you to Whailey," and you'll finish her apprenticeship."
+"I will deliver you to her," and you'll finish her apprenticeship."
 They were silent for a time, the only sound the rapid slam of Skylar's boots in the mud.
 Skylar called upon his boon again, lightly.
 
@@ -224,7 +224,7 @@ Archer couldn't quit coughing and his face was gong dark.
  Skylar glanced at it but made no move to take it, continuing his efforts to unblock Archer's airway with compressions.
 All at once, Archer grew still and his arm fell to rest by his side, lke a puppet whose strings had just been cut.
 
-"TEAACHER!!!" Skylar roared, pounding hArcher's body even though no breath was coming.
+"TEACHER!!!" Skylar roared, pounding hArcher's body even though no breath was coming.
 The blasts that continued all around had done nothing to obscure his teacher's final words, such was his will.
 
 Skylar felt tears trailing down his face but just laid there in the bubble of stillness, one not even the madness of battle could disturb.
@@ -237,11 +237,11 @@ These MONSTERS!" He gripped the crystal so tightly that he felt it should have c
 "If they want a battle, I'll give them a battle.
 
 He absorbed his master's Boon right there on the battlefield, reading the information contained there in inside his spirit.
-[Electric Touch]
-Generate electricity and pour into a target that you make contact with.
-Skylar immediately deployed his domain and used Electric Tough on all he sensed within it.
 
-At first, the tough did little and those within his domain showed no reaction.
+[Electric Touch] - Generate electricity and pour into a target that you make contact with.
+
+Skylar immediately deployed his domain and used Electric Tough on all he sensed within it.
+At first, the touch did little and those within his domain showed no reaction.
 He shifted tactics, pulling all his Electric Touches onto a single target.
 The charge built and built, gathering under his control.
 He switched targets and pulled all the electricity under his control to the new target and they promptly charred, and dropped dead.
