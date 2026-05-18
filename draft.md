@@ -1,4 +1,5 @@
-# The Ritual
+# Book 1
+## The Ritual
 Skylar stood in a row amongst five other teenagers under the hot summer sun.
 The giant yellow orb had slowly been climbing its way to the apex and Skylar sweltered under its light.'
 "Noon can't come soon enough," he thought to himself.
@@ -60,7 +61,10 @@ And this Boon, while fantastic, did nothing to aide him in that journey.
 Skylar's throat tightened at the thought of sharing his boon with his father.
 The path forward, as narrow and hazardous as it was already, just grew significantly more difficult.
 
-# A Teacher's Death
+# Book 2
+
+# Book 3
+## A Teacher's Death
 Skylar held the old man close to him as he raced across the ground.
 The once solid, stamped dirt paths were now a mixture mof mud and blood, the bodies of fallen soldiers strewn about.
 Skylar didn't pause to check their faces, though he desperately wanted to.
