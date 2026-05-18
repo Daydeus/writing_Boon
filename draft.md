@@ -61,6 +61,12 @@ And this Boon, while fantastic, did nothing to aide him in that journey.
 Skylar's throat tightened at the thought of sharing his boon with his father.
 The path forward, as narrow and hazardous as it was already, just grew significantly more difficult.
 
+## No Explanation
+Skylar didn't not exaccctly race home to share the news with his father. His dad had been waiting for this day for years, and had makde sacrifice after sacrifice so that no matter what boon Skylar was granted by the World Spirit, they would have the means of making the most of it. But all of that predicated on Skylar's boon having some sort of benefit in combat.
+The World Spirit was fair, and would tweak whatever you received to conform to your hearts desire. And there was no immediately obvious way to utilize -Weather Ward- for combat purposes. That revealed something about Skylar's character, his hopes for the future that he himself hadn't really wanted to face.
+Skylar wasn't a confrontational person. He didn't aspire to be a powerful warrior robed in glory like his father did. The man hadn't achieved his dreams due to the wounds he'd accumulated costing him an arm and a leg, literally, but he'd prepared all Skylar's life to live vicariously through him.
+As Skylar trudged slowly down the dusty dirt road to the farm they tended to be allowed to live here, Skylar was deeply afraidd how his father was going to react.
+
 # Book 2
 
 # Book 3
