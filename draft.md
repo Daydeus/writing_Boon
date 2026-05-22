@@ -83,6 +83,21 @@ Those who'd already received their boons had tried to explain to Skylar before j
 Skylar played with turning off the Boon,, and noticed the draw ceased immediately. He still felt spent in a way that was hard to put his finger on. It was like a cross between physical exhaustinon and a headache. Not quite physical, not quite mental. Just an aacknowledgement that he was no longer in peak condition. He turned the boon back on and noticed that the changes he'd made previously still applied. The boundary formed around him in the same awkward shape that he'd pressed his will to make.
 He set about returning it to the simple sphere it had been around him on it's first use and at the very thought, it shurnk done and became smooth again.
 Oddly, he noticed the draw on his reserves decreased to almost nothing. He continued to poke and prod, but the state of being on or off, and the postioin of the boundary were the only things he had the opportunity to play with. He would need actual weather to ward against, and the bright sunny day around him, almost sweltiering in it's blazing focus, did little to aide him in his experiments.
+He had the idle thought about weather the sun's heat might be considered a weather effect but before he could pursue it, he heard the door to the cabin slam open.
+
+# Late Start
+
+Skylar's father had been a tall man in his prime. Even now, down a leg, he still rose a few inches above Skylar. His father's greying hair and the catalogue of face wrinkles that grew every year that a a great deal to sell the image of a weak old man but that was exactly the sort of persona he wanted to engender. Skylar's father didn't believe in leaving benefits on the table, especially when it came to combat.
+Skylar smiled fondly at the memory of his father telling him how he'd rolled around on the ground to make a new army commander underestimate him, so that when the time came to challenge him in a duel, the commander who thought we was facing bumbinling prey was eaten alive by the hidden predator. Still though, Skylar's father's days of hunting, and indeed fighting, were behind him.
+His father trudged baround the side of the house to see him standing in the field, and Skylar raised his arm in  adknowledgement of his presence.
+Skylar's father took his time, each step slow and measured as he menauevered his prosthetic through the crop rows while attempting not to squial anything.
+As he arrived to stand next to Skylar, his father asked, "How bad is it?"
+Skylar didn't say anything and stared at the distant sky.
+"Out with it boy. If it had been goodnews, I wouldn't have woken from an unplanned nap to find you standing out here in the field. You would have woken me with your excited screaming."
+Skylar spluttered. "I wouldn't have screamed about it." He paused. "You're right though, if it was anything worth being excited about, I would have woken you up."
+Skylar's father just looked at him. Skylar sighed before answering the previous question. "Weather Ward. Blocks weather effects in a given area."
+Skylar's father looked contemplative at that. "That's a right problem right there, but not as unsurmountable as you'd think."
+"It's not a combat ability. It's basically good for logistics, and not salable enough for the army.
 
 # Book 2
 
