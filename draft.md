@@ -62,27 +62,86 @@ Skylar's throat tightened at the thought of sharing his boon with his father.
 The path forward, as narrow and hazardous as it was already, just grew significantly more difficult.
 
 ## No Explanation
-Skylar didn't not exactly race home to share the news with his father. His dad had been waiting for this day for years, and had makde sacrifice after sacrifice so that no matter what boon Skylar was granted by the World Spirit, they would have the means of making the most of it. But all of that predicated on Skylar's boon having some sort of benefit in combat.
-The World Spirit was fair, and would tweak whatever you received to conform to your hearts desire. And there was no immediately obvious way to utilize -Weather Ward- for combat purposes. That revealed something about Skylar's character, his hopes for the future that he himself hadn't really wanted to face.
-Skylar wasn't a confrontational person. He didn't aspire to be a powerful warrior robed in glory like his father did. The man hadn't achieved his dreams due to the wounds he'd accumulated costing him an arm and a leg, literally, but he'd prepared all Skylar's life to live vicariously through him.
-As Skylar trudged slowly down the dusty dirt road to the farm they tended to be allowed to live here, Skylar was deeply afraidd how his father was going to react. His father wasn't a young man any more. He'd made so many sacrifices over the years. Sacrificing his fourtune, his health, all in the pursuit that Skylar wouldn't have to follow in his footsteps. And whatever stange destiny or judgement Skylar had received from the World Spirit almost certainly meant that the door Skylar's father had opened would close. Unless he did  something drstaic.
+Skylar didn't not exactly race home to share the news with his father.
+His dad had been waiting for this day for years, and had makde sacrifice after sacrifice so that no matter what boon Skylar was granted by the World Spirit, they would have the means of making the most of it.
+But all of that predicated on Skylar's boon having some sort of benefit in combat.
+The World Spirit was fair, and would tweak whatever you received to conform to your hearts desire.
+
+And there was no immediately obvious way to utilize -Weather Ward- for combat purposes.
+
+That revealed something about Skylar's character, his hopes for the future that he himself hadn't really wanted to face.
+Skylar wasn't a confrontational person.
+He didn't aspire to be a powerful warrior robed in glory like his father did.
+The man hadn't achieved his dreams due to the wounds he'd accumulated costing him an arm and a leg, literally, but he'd prepared all Skylar's life to live vicariously through him.
+
+As Skylar trudged slowly down the dusty dirt road to the farm they tended to be allowed to live here, Skylar was deeply afraidd how his father was going to react.
+His father wasn't a young man any more.
+He'd made so many sacrifices over the years.
+Sacrificing his fourtune, his health, all in the pursuit that Skylar wouldn't have to follow in his footsteps.
+And whatever stange destiny or judgement Skylar had received from the World Spirit almost certainly meant that the door Skylar's father had opened would close.
+
+Unless he did  something drstaic.
+
 The sun beat heavily down upon him as he came upon their house, the grass cut low and the wors of growing grain that normally filled Skylar with confidence didn't do so this time.
 'Is this my fault' he asked himself? 'Did I enjoy being a farmer too much?'
--Weather Ward- wasn't a combat ability. It wasn't necessarily a farming ability either though. He'd played with ti a bit on his walk home but without weather to confront with the ward, he didn't have a strong grasp on what his ability actually did.
-Skylar made his way to the front door but paused at the doorstep. He stared at the door handle. His father might be inside resting, or he might already be back in the fields. Skylar couldn't be sure, and though he pushed the old man to spend more time inside, Skylar's father was stubborn and used to being self suffiecient.
-Skylar gulped, swalloing his anxiety and pulled the door open. Stepping inside, he heard the quitet snores of his father and his shoulders slumped in relief.
-They were going to have that conversation, but it wasn't going to be now. He quietly retreaded back out the door and closed it softly.
-Walking around the house, he waled into the field, idly brushing his hands along the growing plants. A warm wind washed oer him, tousling his hair and he smiled despite himself.
+-Weather Ward- wasn't a combat ability.
+It wasn't necessarily a farming ability either though.
+He'd played with ti a bit on his walk home but without weather to confront with the ward, he didn't have a strong grasp on what his ability actually did.
+
+Skylar made his way to the front door but paused at the doorstep.
+He stared at the door handle.
+His father might be inside resting, or he might already be back in the fields.
+Skylar couldn't be sure, and though he pushed the old man to spend more time inside, Skylar's father was stubborn and used to being self suffiecient.
+
+Skylar gulped, swalloing his anxiety and pulled the door open.
+Stepping inside, he heard the quitet snores of his father and his shoulders slumped in relief.
+They were going to have that conversation, but it wasn't going to be now.
+He quietly retreaded back out the door and closed it softly.
+
+Walking around the house, he waled into the field, idly brushing his hands along the growing plants.
+A warm wind washed oer him, tousling his hair and he smiled despite himself.
 ' I suppose now is as good a time to experiment as any." Maybe he'd find something unique or powerful that his musing on th way home missed.
-He felt for that switch in his mind. The words felt different as he thought them, having some subtle weight that his inner voice lacked. -Weather Ward-.
-Immediately around him, he felt a... threshold form around him. He didn't really have a better word for it. The world was suddenly split in two, between the outside and the inside. And the inside was his in a way that was hard to articulate. He could tell that he could press outward and did so.
-The threshold, the ward's edge, moved farther from him. The ward extended outward from him in the direction of the pressure he exerted. He noted the space he controlled increased slowly and began applying pressure to his left and right as well.
-There were no visual tells. He couldn't see the edge but the same subtle weight in his mind that accompanied the boon's name and activation gave him a sense of the space he owned relative to his current position. He would need to play with htis more.
-As he did so, he nticed the draw on his... energy continued to rise. Each change he made sapped him in some subtle way, making him feel lesser. Skylar couldn't tell exactly what was happening, but knew this was yet another aspect he would have to get familiar with.
-Those who'd already received their boons had tried to explain to Skylar before just what is was like to have one. Some of what they described could resaonably be interpreted as what he dealt with now, but it seemed the old adage was true. You couldn't really know what it was like to be empowered by the World Spirit until you had been. Explaining it, or attempting to rather, would only confuse those still waiting.
-Skylar played with turning off the Boon,, and noticed the draw ceased immediately. He still felt spent in a way that was hard to put his finger on. It was like a cross between physical exhaustinon and a headache. Not quite physical, not quite mental. Just an aacknowledgement that he was no longer in peak condition. He turned the boon back on and noticed that the changes he'd made previously still applied. The boundary formed around him in the same awkward shape that he'd pressed his will to make.
+He felt for that switch in his mind.
+The words felt different as he thought them, having some subtle weight that his inner voice lacked.
+
+-Weather Ward-.
+
+Immediately around him, he felt a...
+threshold form around him.
+He didn't really have a better word for it.
+The world was suddenly split in two, between the outside and the inside.
+And the inside was his in a way that was hard to articulate.
+He could tell that he could press outward and did so.
+The threshold, the ward's edge, moved farther from him.
+The ward extended outward from him in the direction of the pressure he exerted.
+He noted the space he controlled increased slowly and began applying pressure to his left and right as well.
+
+There were no visual tells.
+He couldn't see the edge but the same subtle weight in his mind that accompanied the boon's name and activation gave him a sense of the space he owned relative to his current position.
+He would need to play with htis more.
+As he did so, he nticed the draw on his...
+energy continued to rise.
+
+Each change he made sapped him in some subtle way, making him feel lesser.
+Skylar couldn't tell exactly what was happening, but knew this was yet another aspect he would have to get familiar with.
+Those who'd already received their boons had tried to explain to Skylar before just what is was like to have one.
+Some of what they described could resaonably be interpreted as what he dealt with now, but it seemed the old adage was true.
+You couldn't really know what it was like to be empowered by the World Spirit until you had been.
+Explaining it, or attempting to rather, would only confuse those still waiting.
+
+Skylar played with turning off the Boon,, and noticed the draw ceased immediately.
+He still felt spent in a way that was hard to put his finger on.
+It was like a cross between physical exhaustinon and a headache.
+Not quite physical, not quite mental.
+Just an aacknowledgement that he was no longer in peak condition.
+
+He turned the boon back on and noticed that the changes he'd made previously still applied.
+The boundary formed around him in the same awkward shape that he'd pressed his will to make.
 He set about returning it to the simple sphere it had been around him on it's first use and at the very thought, it shurnk done and became smooth again.
-Oddly, he noticed the draw on his reserves decreased to almost nothing. He continued to poke and prod, but the state of being on or off, and the postioin of the boundary were the only things he had the opportunity to play with. He would need actual weather to ward against, and the bright sunny day around him, almost sweltiering in it's blazing focus, did little to aide him in his experiments.
+Oddly, he noticed the draw on his reserves decreased to almost nothing.
+He continued to poke and prod, but the state of being on or off, and the postioin of the boundary were the only things he had the opportunity to play with.
+
+He would need actual weather to ward against, and the bright sunny day around him, almost sweltiering in it's blazing focus, did little to aide him in his experiments.
 He had the idle thought about weather the sun's heat might be considered a weather effect but before he could pursue it, he heard the door to the cabin slam open.
 
 # Late Start
