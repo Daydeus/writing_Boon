@@ -156,7 +156,14 @@ Skylar didn't say anything and stared at the distant sky.
 Skylar spluttered. "I wouldn't have screamed about it." He paused. "You're right though, if it was anything worth being excited about, I would have woken you up."
 Skylar's father just looked at him. Skylar sighed before answering the previous question. "Weather Ward. Blocks weather effects in a given area."
 Skylar's father looked contemplative at that. "That's a right problem right there, but not as unsurmountable as you'd think."
-"It's not a combat ability. It's basically good for logistics, and not salable enough for the army.
+"It's not a combat ability. It's basically good for logistics, and not salable enough for the army," Skylar replied. "It's not anything like waht we needed
+His father nodded, "True. But You've understimated the potential for this Boon. Depending o how you develop with it, it could become powerful indeed."
+Skylar grinned internally. His father had dodged the issue of how people grew in power for years. A boo was a supernatural effect granted by the Great World Spirit, but he knew that couldn't be the end of it. Nobles, officers in the army, and high-level warriors in the Rift Reavers guild had abilities that couldn't be explained by a Boon. Or even multiple boons. The power they wielded was exponential rather than multiplilcative.
+"So you'll finally tell me how the legends do what they do?" He asked not bothering to feign disinterest.
+His father sighed. "Aye brat, let's go inside. We're not going to get anymore work done today and the farm will keep another day."
+He turned his back on Skylar and slowly walked back to their house, his wooden prosthetic leaving deep prints in the mud. Skylar followed behind easily, keeping pace but reiging in his excitement to walk only a step behind instead of racing for the door. He wasn't a child anymore and despite the slightly somber look on his father's fatce, he knew the old man wouldn't miss an opportunity to make fun of him if Skylar gave it to him.
+Skylar stepped ahead of his father just in time to get the door and his father pased by without comment beforesettingling into the chair closest to him. Skylar pulled another chair from their dinner table and sat across from him.
+His father met his eyes and sighed. "First, you better tell me what scraps you've gathered from the village and I'll explain why it's all a load of bunk."
 
 # Book 2
 
