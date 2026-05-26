@@ -164,6 +164,14 @@ His father sighed. "Aye brat, let's go inside. We're not going to get anymore wo
 He turned his back on Skylar and slowly walked back to their house, his wooden prosthetic leaving deep prints in the mud. Skylar followed behind easily, keeping pace but reiging in his excitement to walk only a step behind instead of racing for the door. He wasn't a child anymore and despite the slightly somber look on his father's fatce, he knew the old man wouldn't miss an opportunity to make fun of him if Skylar gave it to him.
 Skylar stepped ahead of his father just in time to get the door and his father pased by without comment beforesettingling into the chair closest to him. Skylar pulled another chair from their dinner table and sat across from him.
 His father met his eyes and sighed. "First, you better tell me what scraps you've gathered from the village and I'll explain why it's all a load of bunk."
+Skylar pused to think over all the rumors he'd heard growing up about how to grow your power. The Great Spiriti granted every person a boon, which was always a supernatural ability that could ot be accomplished by any other means. It either did something outright impossible, or allowed for somthing possible to happen impossibly fast, or eliminated what would typically be a requirement. Examples of the different types could be, fire that burned underwater, fires that bloomed at will, or fires that needed no fuel. But anyone who held power in society had more power than could be explained with the boon. Boons typically were balanced; the more powerful or ipossible the effect, the narrower the conditions under which it could be used. So Skylar and his fiends posited that there had to be a way to gain additional boons. And however it was done, those with power had some way to encourage the ones they gained to be supplementatl in some way. Either making up for the narrow conditions or covering exceptions such that they limitations were removed.
+Skylar went ahead and shared all of that with his father, and the old man nodded. "Not bad, son. Well reasoned but without any of the specifics. Any thoughts on how they actually do that?"
+"I'm prettty sure it involves killing things."
+\His father just raised one brow. "And how do you figure that?"
+Skylar met his eyes and said, "The two most powerful gropups, outside the nobles, are the military and the Rift Reavers guild Both of the are combative gropus who fight off threats to the kingdom. Either people or extraplanar threats."
+"And yet, the nobles stand above them both. How do you explain that?"
+Skylar shrugged his shoulders and smiled. "That's all I've got dad. But I suspect you're about to tell me."
+"Dammit boy, it's like you didn't even really try to find anything out!" His father laughed. "Where are the juicy rumors, the idiotic ideas. All you 've given me is reasonable theories!"
 
 # Book 2
 
