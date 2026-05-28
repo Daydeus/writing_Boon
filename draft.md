@@ -172,6 +172,12 @@ Skylar met his eyes and said, "The two most powerful gropups, outside the nobles
 "And yet, the nobles stand above them both. How do you explain that?"
 Skylar shrugged his shoulders and smiled. "That's all I've got dad. But I suspect you're about to tell me."
 "Dammit boy, it's like you didn't even really try to find anything out!" His father laughed. "Where are the juicy rumors, the idiotic ideas. All you 've given me is reasonable theories!"
+Skylar laughed along with him. "Why would I bother to pay attention to stuff almost certainly too outlandish to be real! You're just lucky that we have no levers to experiemnt with before we actually get our boon."
+Skylar's father just smiled and shook his head. "Alright, so the first I can tell you is that getting your Boon from the Sporiti is only the beginning. It is the first step on the stairway of power" He straightened in his chair and held Skylar's eyes. "The stairway of power has 0 steps, and the strenth you can bring to bear is greater with each step you take. One thing to note though, is that the stair way can be navigated in multiple ways and how much power you gain with each step differs drastically based on the individual. Nobles, for example, have their whole path planned out by the time their Boons are unsealed."
+What do you mean, unsealed?"
+His father nodded. "It's not a particularly deep secret but everyone agreed at the founding of this village to keep it. The Great Spirit actually grants your Boon to you at birth. That's why village heads and town mayors are required to be priests to the Great World Spirit; they need to be able to seal the Boons from newborns."
+Skylar sat in stunned silence for a moment, before exploding, "I could have had my boon this whole time!? And if I've had it my whole life, why didn't you already know what it is?"
+His father shook his head. "Divination is a particularly intensive Boon and is heavily restricted, on top of being rare. Priests don't need to know what your Boon is to be able to seal it. Nobles almost certainly learn about the Boon before sealing it, giving them the child's whole live to plan out their path of power and have it ready for their coming of age."
 
 # Book 2
 
