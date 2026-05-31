@@ -178,6 +178,19 @@ What do you mean, unsealed?"
 His father nodded. "It's not a particularly deep secret but everyone agreed at the founding of this village to keep it. The Great Spirit actually grants your Boon to you at birth. That's why village heads and town mayors are required to be priests to the Great World Spirit; they need to be able to seal the Boons from newborns."
 Skylar sat in stunned silence for a moment, before exploding, "I could have had my boon this whole time!? And if I've had it my whole life, why didn't you already know what it is?"
 His father shook his head. "Divination is a particularly intensive Boon and is heavily restricted, on top of being rare. Priests don't need to know what your Boon is to be able to seal it. Nobles almost certainly learn about the Boon before sealing it, giving them the child's whole live to plan out their path of power and have it ready for their coming of age."
+Skylar sighed. "So it's just one more way in which the nobles are advantaged over the rest of us."
+"They're not evil son, not all of them at least. You get poeple raised from a young age expecting to be better than everyone beneathe them, and when they eventually come upon someone talented enough to be better in some way, they see it as an afront. But some of them use their poser responsibly, and that's all that anyone can hope for. To use their power for it's inteded purpose."
+With the weight of repeition, Skylar said, To protect the Great Spirit and promote the growth of society as a whole."
+His father reached out and ruffled his hair. "Thy're just words to you now but one day you'll understand just how importnat that creed is, and the sacrifices it can entail for those with power. But you'll never get that power sitting her talking to an old man! Go spend the rest of the evvening with your friends and play with your Boons. You'll be relying on them to join the guild."
+Skylar swallowed the sudden wave of anxiety and mock saluted. "Sir yes sir!" He bolted from his seat and was out the door before his father ccould chastise him for irreverence regarding the military.
+
+# Meeting Up
+
+Skylar didn't have to think about where he'd find his friends, assuming they were already done with their parents interrogating them. There was a creek outside the farm plots where they'd played as children; while they'd grown out of splashing each other, it still made for a great spot to park your feet at the end of a summer day and chat.
+He wasn't the first to arrive, which wasn't a surprise given how he'd waited for his dad to wake from his nap before talking. Lexie stood in the center of the creek, surrounded by a torrent of water hovering in the air. He stared as the torrent slowed so that he could see it was made of tendrils of water, each the width of a finger. The tendrils' base was the creek at Lexie's feet and the tendrils spun up and slowed down seeminly at random. When they were moving quickly, Lexie was almost completely obscured behind the wall of water.
+She turned to look in his direction and called, "Are you done catching flies, or should I start caling you toad?"
+The quip pulled an involuntary laugh out of him.
+Just admiring the skill! You can do so much with this; what is its name?"
 
 # Book 2
 
