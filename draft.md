@@ -191,6 +191,19 @@ He wasn't the first to arrive, which wasn't a surprise given how he'd waited for
 She turned to look in his direction and called, "Are you done catching flies, or should I start caling you toad?"
 The quip pulled an involuntary laugh out of him.
 Just admiring the skill! You can do so much with this; what is its name?"
+"-Water Tendril-," she replied. "I have to maintain contact with the source of the tendril and after some testing, I can't move more than the volume of my body's worth at once but it's effortlesss to maintain."
+"This is exactly the sort of ability I would have wanted Lexie. You'll go far with this!"
+She beamed at him. "My parents were so excited for me. But what about you? I take it you don't like your boon?"
+He broke eye contact and tried to figure out the words that would let him explain just how screwed he was without letting the jealously he felt show. As he wrestled with it, the silence stretched longer and longer.
+She broke it first. "Damn, that bad, huh?"
+Skylar ran a hand through his hair. "Yeah, its-"
+"There you guys are!" Arthur raced into the creek's clearing, tripping into the cold water and splashing everywhere. Arthur pulled himself up out of the creek, clothes now soaked and Skylar saw the exact moment he noticed Lexie's boon. He immediately turned to Skylar and asked, what about you, did you get something awesome too?"
+Skylar gave a pitying smile, because he knew Arthur well enough to understand already. "You got a bad one too, huh?"
+Lexie let her tendril drop back into the water from wich it came and took measured steps acroos the creek's stones to stand beside them. "No pity parties here. If they're bad, we'll ltrain and get you better ones but I'm tired of wating. Let's hear it." She pointed at Skylar first.
+"-Weather Ward-."
+She pointed at Arther. "-Focused Illumination."
+She blanched. "Damn, okay, those really aren't great. But that's fine, we're a frontier town. The fact that you've trained your whole lives for this will mean something." She paused, before continuing, "And we'll talk to our favorite team, maybe they can pull a string or two. They've been looking out for us this whole time, what's a little longer."
+Skylar met Arthur's eyes and they both noddded. Simultaneousl, they pushed Lexie into the crekk and soaked her through and immediately hightailed it. She screamed and reached for them. She got Arthur's wrist and pulled him in; Skylar dodged, only for her tendril to reach out of the water and push him from behind. They all broke out laughing and a splash war kicked off. Somewhere in th middle, Skylar noticed that water that came from above splashed off his -Weather Ward-, as he'd forgotten to turn it off. He made a note about it, and then focused on playing with his friends. He would have time to experiment later.
 
 # Book 2
 
