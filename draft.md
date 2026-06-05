@@ -205,6 +205,14 @@ She pointed at Arther. "-Focused Illumination."
 She blanched. "Damn, okay, those really aren't great. But that's fine, we're a frontier town. The fact that you've trained your whole lives for this will mean something." She paused, before continuing, "And we'll talk to our favorite team, maybe they can pull a string or two. They've been looking out for us this whole time, what's a little longer."
 Skylar met Arthur's eyes and they both noddded. Simultaneousl, they pushed Lexie into the crekk and soaked her through and immediately hightailed it. She screamed and reached for them. She got Arthur's wrist and pulled him in; Skylar dodged, only for her tendril to reach out of the water and push him from behind. They all broke out laughing and a splash war kicked off. Somewhere in th middle, Skylar noticed that water that came from above splashed off his -Weather Ward-, as he'd forgotten to turn it off. He made a note about it, and then focused on playing with his friends. He would have time to experiment later.
 
+# Favorite Team
+
+Skylar rose early the next day, long before the sun rose. Just because a new chapter in his life was being written didn't mean he was absolved of his previous responsibilities. His father still needed help around the farm and until Skylar left (if he could leave), he would continue to aide his father. And with the pan to meet his friends in town later at the Rift Reaver's guild he'd need to get his work taken care of before hand.
+So Skylar grabbed a roll of sausage from the cold box in the cellar and tore a chunk of bread and ground them down between his teeth as he made his way throughout the fileds. This late in the season, the crops were already growing well. He just needed to ensure they were well watered and that weeds weren't taking up residence and stealing preciouss resources needed from the plants that actually mattered.
+Skylar carried a large bucket filled with water and a large ladle. and liberaly poured water anywaere the soil looked to dry. He carried a cloth sack tied to his waster and would occasionally crouch to dig for weeds at the crop's base. He had to shift the soil a bit around it to ensure he pulled the weed up , roots and all. It wouldn't do, to do the job half-way. That's how you ended up kicking yourself in the future.
+Skylar already had enough problems, he didn't need to be creating more for future him to worry about.
+Perhaps an hour after the sun rose, Skylar finished the bare minimum needed to earn some tie away from the fields. His work wasn't done, not by a long-shot but the rest wasn't critical for this time of day. He could finish in the afternoon and would only have to endure the sun overhead for his troubles. He planned to play with -Weather Ward- and see if that couldn't flip the siutation in his favor. After all, sunny summer weather was weather too right?
+
 # Book 2
 
 # Book 3
