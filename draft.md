@@ -212,6 +212,14 @@ So Skylar grabbed a roll of sausage from the cold box in the cellar and tore a c
 Skylar carried a large bucket filled with water and a large ladle. and liberaly poured water anywaere the soil looked to dry. He carried a cloth sack tied to his waster and would occasionally crouch to dig for weeds at the crop's base. He had to shift the soil a bit around it to ensure he pulled the weed up , roots and all. It wouldn't do, to do the job half-way. That's how you ended up kicking yourself in the future.
 Skylar already had enough problems, he didn't need to be creating more for future him to worry about.
 Perhaps an hour after the sun rose, Skylar finished the bare minimum needed to earn some tie away from the fields. His work wasn't done, not by a long-shot but the rest wasn't critical for this time of day. He could finish in the afternoon and would only have to endure the sun overhead for his troubles. He planned to play with -Weather Ward- and see if that couldn't flip the siutation in his favor. After all, sunny summer weather was weather too right?
+He left the fields behind and made his way down the dusty dirt road to town. He and his father didn't live far, but it wasn't a short walk either. Skylar wondered idly what it would be like to own a hourse or mule, to pulll a cart for their family. He grinned to himself at the thought. "Maybe once I join the Rift Reaver's guild, I'll be able to send enough money home to find out." The smile slipped. "Assuming I can get in with -Weather Ward-, of course."
+The hard packed earth of the road made for easy walking and Skylar's pace ate the miles up. Soon the village gate was in sight and Arthur and Lexie were there waiting for him.
+He gretted each with a solemn nod that Arthru returned. lexie waved him off, complaining "Quit worrying you too. They're going to pull some strings and everything will be fine." Skylar shared a glance with Arthur before they both agreed silently to not push back at Lexie.
+Lexie knocked on the gate and a side door opened. The guard blinked owlishly at them before he recognized them. He waved them on in and as they entered the door, the quiet mumur of the waking village washed over them.
+"Now, where do you suppose we'll find them this early in the day?" Lexie asked without looking back.
+Skylar rubbed the back of his neck. "Doid they ever get a residence of their own, or are they still sleeping in the guild quarters?"
+They all looked at each other for an answer bufore Lexie said, "Let's check the guild first. Even if they're not staying there, the receptionist could tell us where we might find them.
+Lexie started walking with purpose, with Arthur and Skylar right behind. Skylar smiled to himself. It was good to see that even with -Weather Ward- throwing off long-term plans, some things hadn't changed.
 
 # Book 2
 
