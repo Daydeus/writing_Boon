@@ -220,6 +220,13 @@ Lexie knocked on the gate and a side door opened. The guard blinked owlishly at 
 Skylar rubbed the back of his neck. "Doid they ever get a residence of their own, or are they still sleeping in the guild quarters?"
 They all looked at each other for an answer bufore Lexie said, "Let's check the guild first. Even if they're not staying there, the receptionist could tell us where we might find them.
 Lexie started walking with purpose, with Arthur and Skylar right behind. Skylar smiled to himself. It was good to see that even with -Weather Ward- throwing off long-term plans, some things hadn't changed.
+He and Arthur followed behind the bossy girl through the center of the village, walking along the sides of the gobblestone road as businesses began to stir and traffic appeared around them. Skylar breathed in the still early air, sweet as it was in lungs. The smell wasn't great but he'd visited enough over the years for the strong scents of the village life mingling weren't as overpowering as in his childhood.
+The Rift Reaver's Guild was one of the most impsoing buildings in the village and even if you didn't know what it was, you knew it was something special. It was on the opposite side from the central square where everyone's boons had been given- no, unsealed. At three stories tall, it stood head and shoulders over the village.
+The front dooors were always open, to reflect the guild policy that they were always available. They did a suprising number of support tasks in the village, considering their mandate was exclusively to close the rifts between worlds.
+The interior was muted, with lamps containing candles spaced a meter apart along each wall. The tables that would be filled with rowdy reavers in the evening were currently empty but the receptionist at the far desk was present, if inattentive.
+While Lexie trudged through the tables toward the receptionist, with Skylar following behind quitely, Arthur made their presence known. "Heya, Allison!" Skylar was sure he was faking the sickly sweet positive tone to poke fun at the noticiably grump woman. "How are we doing this fine morning.
+Skylar saw that he wore a shit-eating grin and Arthur made no attempt to hide it as the receptionist looked up at them from the book splayed across the desk.
+The older woman brushed dirty blond hair out of her eyes as she looked up at them before frowning. "You brats are here too early, no one else is even up yet. Unless a rift appeared outside of town or someone is dying, scamper on outside and go play in the mud.
 
 # Book 2
 
