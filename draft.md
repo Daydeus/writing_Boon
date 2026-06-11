@@ -146,43 +146,141 @@ He had the idle thought about weather the sun's heat might be considered a weath
 
 # Late Start
 
-Skylar's father had been a tall man in his prime. Even now, down a leg, he still rose a few inches above Skylar. His father's greying hair and the catalogue of face wrinkles that grew every year that a a great deal to sell the image of a weak old man but that was exactly the sort of persona he wanted to engender. Skylar's father didn't believe in leaving benefits on the table, especially when it came to combat.
-Skylar smiled fondly at the memory of his father telling him how he'd rolled around on the ground to make a new army commander underestimate him, so that when the time came to challenge him in a duel, the commander who thought we was facing bumbinling prey was eaten alive by the hidden predator. Still though, Skylar's father's days of hunting, and indeed fighting, were behind him.
+Skylar's father had been a tall man in his prime.
+Even now, down a leg, he still rose a few inches above Skylar.
+His father's greying hair and the catalogue of face wrinkles that grew every year that a a great deal to sell the image of a weak old man but that was exactly the sort of persona he wanted to engender.
+Skylar's father didn't believe in leaving benefits on the table, especially when it came to combat.
+
+Skylar smiled fondly at the memory of his father telling him how he'd rolled around on the ground to make a new army commander underestimate him, so that when the time came to challenge him in a duel, the commander who thought we was facing bumbinling prey was eaten alive by the hidden predator.
+
+Still though, Skylar's father's days of hunting, and indeed fighting, were behind him.
+
 His father trudged baround the side of the house to see him standing in the field, and Skylar raised his arm in  adknowledgement of his presence.
 Skylar's father took his time, each step slow and measured as he menauevered his prosthetic through the crop rows while attempting not to squial anything.
+
 As he arrived to stand next to Skylar, his father asked, "How bad is it?"
 Skylar didn't say anything and stared at the distant sky.
-"Out with it boy. If it had been goodnews, I wouldn't have woken from an unplanned nap to find you standing out here in the field. You would have woken me with your excited screaming."
-Skylar spluttered. "I wouldn't have screamed about it." He paused. "You're right though, if it was anything worth being excited about, I would have woken you up."
-Skylar's father just looked at him. Skylar sighed before answering the previous question. "Weather Ward. Blocks weather effects in a given area."
-Skylar's father looked contemplative at that. "That's a right problem right there, but not as unsurmountable as you'd think."
-"It's not a combat ability. It's basically good for logistics, and not salable enough for the army," Skylar replied. "It's not anything like waht we needed
-His father nodded, "True. But You've understimated the potential for this Boon. Depending o how you develop with it, it could become powerful indeed."
-Skylar grinned internally. His father had dodged the issue of how people grew in power for years. A boo was a supernatural effect granted by the Great World Spirit, but he knew that couldn't be the end of it. Nobles, officers in the army, and high-level warriors in the Rift Reavers guild had abilities that couldn't be explained by a Boon. Or even multiple boons. The power they wielded was exponential rather than multiplilcative.
+"Out with it boy.
+If it had been goodnews, I wouldn't have woken from an unplanned nap to find you standing out here in the field.
+You would have woken me with your excited screaming."
+
+Skylar spluttered.
+"I wouldn't have screamed about it." He paused.
+"You're right though, if it was anything worth being excited about, I would have woken you up."
+
+Skylar's father just looked at him.
+Skylar sighed before answering the previous question.
+"Weather Ward.
+Blocks weather effects in a given area."
+
+Skylar's father looked contemplative at that.
+"That's a right problem right there, but not as unsurmountable as you'd think."
+"It's not a combat ability.
+It's basically good for logistics, and not salable enough for the army," Skylar replied.
+"It's not anything like waht we needed."
+
+His father nodded, "True.
+But You've understimated the potential for this Boon.
+Depending o how you develop with it, it could become powerful indeed."
+
+Skylar grinned internally.
+His father had dodged the issue of how people grew in power for years.
+A boo was a supernatural effect granted by the Great World Spirit, but he knew that couldn't be the end of it.
+Nobles, officers in the army, and high-level warriors in the Rift Reavers guild had abilities that couldn't be explained by a Boon.
+Or even multiple boons.
+The power they wielded was exponential rather than multiplilcative.
+
 "So you'll finally tell me how the legends do what they do?" He asked not bothering to feign disinterest.
-His father sighed. "Aye brat, let's go inside. We're not going to get anymore work done today and the farm will keep another day."
-He turned his back on Skylar and slowly walked back to their house, his wooden prosthetic leaving deep prints in the mud. Skylar followed behind easily, keeping pace but reiging in his excitement to walk only a step behind instead of racing for the door. He wasn't a child anymore and despite the slightly somber look on his father's fatce, he knew the old man wouldn't miss an opportunity to make fun of him if Skylar gave it to him.
-Skylar stepped ahead of his father just in time to get the door and his father pased by without comment beforesettingling into the chair closest to him. Skylar pulled another chair from their dinner table and sat across from him.
-His father met his eyes and sighed. "First, you better tell me what scraps you've gathered from the village and I'll explain why it's all a load of bunk."
-Skylar pused to think over all the rumors he'd heard growing up about how to grow your power. The Great Spiriti granted every person a boon, which was always a supernatural ability that could ot be accomplished by any other means. It either did something outright impossible, or allowed for somthing possible to happen impossibly fast, or eliminated what would typically be a requirement. Examples of the different types could be, fire that burned underwater, fires that bloomed at will, or fires that needed no fuel. But anyone who held power in society had more power than could be explained with the boon. Boons typically were balanced; the more powerful or ipossible the effect, the narrower the conditions under which it could be used. So Skylar and his fiends posited that there had to be a way to gain additional boons. And however it was done, those with power had some way to encourage the ones they gained to be supplementatl in some way. Either making up for the narrow conditions or covering exceptions such that they limitations were removed.
-Skylar went ahead and shared all of that with his father, and the old man nodded. "Not bad, son. Well reasoned but without any of the specifics. Any thoughts on how they actually do that?"
+
+His father sighed.
+"Aye brat, let's go inside.
+We're not going to get anymore work done today and the farm will keep another day."
+He turned his back on Skylar and slowly walked back to their house, his wooden prosthetic leaving deep prints in the mud.
+
+Skylar followed behind easily, keeping pace but reiging in his excitement to walk only a step behind instead of racing for the door.
+He wasn't a child anymore and despite the slightly somber look on his father's fatce, he knew the old man wouldn't miss an opportunity to make fun of him if Skylar gave it to him.
+
+Skylar stepped ahead of his father just in time to get the door and his father pased by without comment beforesettingling into the chair closest to him.
+Skylar pulled another chair from their dinner table and sat across from him.
+
+His father met his eyes and sighed.
+"First, you better tell me what scraps you've gathered from the village and I'll explain why it's all a load of bunk."
+
+Skylar pused to think over all the rumors he'd heard growing up about how to grow your power.
+The Great Spiriti granted every person a boon, which was always a supernatural ability that could ot be accomplished by any other means.
+It either did something outright impossible, or allowed for somthing possible to happen impossibly fast, or eliminated what would typically be a requirement.
+Examples of the different types could be, fire that burned underwater, fires that bloomed at will, or fires that needed no fuel.
+But anyone who held power in society had more power than could be explained with the boon.
+Boons typically were balanced; the more powerful or ipossible the effect, the narrower the conditions under which it could be used.
+So Skylar and his fiends posited that there had to be a way to gain additional boons.
+And however it was done, those with power had some way to encourage the ones they gained to be supplementatl in some way.
+Either making up for the narrow conditions or covering exceptions such that they limitations were removed.
+
+Skylar went ahead and shared all of that with his father, and the old man nodded.
+"Not bad, son.
+Well reasoned but without any of the specifics.
+Any thoughts on how they actually do that?"
+
 "I'm prettty sure it involves killing things."
-\His father just raised one brow. "And how do you figure that?"
-Skylar met his eyes and said, "The two most powerful gropups, outside the nobles, are the military and the Rift Reavers guild Both of the are combative gropus who fight off threats to the kingdom. Either people or extraplanar threats."
-"And yet, the nobles stand above them both. How do you explain that?"
-Skylar shrugged his shoulders and smiled. "That's all I've got dad. But I suspect you're about to tell me."
-"Dammit boy, it's like you didn't even really try to find anything out!" His father laughed. "Where are the juicy rumors, the idiotic ideas. All you 've given me is reasonable theories!"
-Skylar laughed along with him. "Why would I bother to pay attention to stuff almost certainly too outlandish to be real! You're just lucky that we have no levers to experiemnt with before we actually get our boon."
-Skylar's father just smiled and shook his head. "Alright, so the first I can tell you is that getting your Boon from the Sporiti is only the beginning. It is the first step on the stairway of power" He straightened in his chair and held Skylar's eyes. "The stairway of power has 0 steps, and the strenth you can bring to bear is greater with each step you take. One thing to note though, is that the stair way can be navigated in multiple ways and how much power you gain with each step differs drastically based on the individual. Nobles, for example, have their whole path planned out by the time their Boons are unsealed."
+
+His father just raised one brow.
+"And how do you figure that?"
+
+Skylar met his eyes and said, "The two most powerful gropups, outside the nobles, are the military and the Rift Reavers guild Both of the are combative gropus who fight off threats to the kingdom.
+Either people or extraplanar threats."
+
+"And yet, the nobles stand above them both.
+How do you explain that?"
+
+Skylar shrugged his shoulders and smiled.
+"That's all I've got dad.
+But I suspect you're about to tell me."
+
+"Dammit boy, it's like you didn't even really try to find anything out!" His father laughed.
+"Where are the juicy rumors, the idiotic ideas.
+All you 've given me is reasonable theories!"
+
+Skylar laughed along with him.
+"Why would I bother to pay attention to stuff almost certainly too outlandish to be real! You're just lucky that we have no levers to experiemnt with before we actually get our boon."
+
+Skylar's father just smiled and shook his head.
+"Alright, so the first I can tell you is that getting your Boon from the Sporiti is only the beginning.
+It is the first step on the stairway of power" He straightened in his chair and held Skylar's eyes.
+"The stairway of power has 0 steps, and the strenth you can bring to bear is greater with each step you take.
+One thing to note though, is that the stair way can be navigated in multiple ways and how much power you gain with each step differs drastically based on the individual.
+Nobles, for example, have their whole path planned out by the time their Boons are unsealed."
+
 What do you mean, unsealed?"
-His father nodded. "It's not a particularly deep secret but everyone agreed at the founding of this village to keep it. The Great Spirit actually grants your Boon to you at birth. That's why village heads and town mayors are required to be priests to the Great World Spirit; they need to be able to seal the Boons from newborns."
+
+His father nodded.
+"It's not a particularly deep secret but everyone agreed at the founding of this village to keep it.
+The Great Spirit actually grants your Boon to you at birth.
+That's why village heads and town mayors are required to be priests to the Great World Spirit; they need to be able to seal the Boons from newborns."
+
 Skylar sat in stunned silence for a moment, before exploding, "I could have had my boon this whole time!? And if I've had it my whole life, why didn't you already know what it is?"
-His father shook his head. "Divination is a particularly intensive Boon and is heavily restricted, on top of being rare. Priests don't need to know what your Boon is to be able to seal it. Nobles almost certainly learn about the Boon before sealing it, giving them the child's whole live to plan out their path of power and have it ready for their coming of age."
-Skylar sighed. "So it's just one more way in which the nobles are advantaged over the rest of us."
-"They're not evil son, not all of them at least. You get poeple raised from a young age expecting to be better than everyone beneathe them, and when they eventually come upon someone talented enough to be better in some way, they see it as an afront. But some of them use their poser responsibly, and that's all that anyone can hope for. To use their power for it's inteded purpose."
+
+His father shook his head.
+"Divination is a particularly intensive Boon and is heavily restricted, on top of being rare.
+Priests don't need to know what your Boon is to be able to seal it.
+Nobles almost certainly learn about the Boon before sealing it, giving them the child's whole live to plan out their path of power and have it ready for their coming of age."
+
+Skylar sighed.
+"So it's just one more way in which the nobles are advantaged over the rest of us."
+
+"They're not evil son, not all of them at least.
+You get poeple raised from a young age expecting to be better than everyone beneathe them, and when they eventually come upon someone talented enough to be better in some way, they see it as an afront.
+But some of them use their poser responsibly, and that's all that anyone can hope for.
+To use their power for it's inteded purpose."
+
 With the weight of repeition, Skylar said, To protect the Great Spirit and promote the growth of society as a whole."
-His father reached out and ruffled his hair. "Thy're just words to you now but one day you'll understand just how importnat that creed is, and the sacrifices it can entail for those with power. But you'll never get that power sitting her talking to an old man! Go spend the rest of the evvening with your friends and play with your Boons. You'll be relying on them to join the guild."
-Skylar swallowed the sudden wave of anxiety and mock saluted. "Sir yes sir!" He bolted from his seat and was out the door before his father ccould chastise him for irreverence regarding the military.
+
+His father reached out and ruffled his hair.
+"Thy're just words to you now but one day you'll understand just how importnat that creed is, and the sacrifices it can entail for those with power.
+But you'll never get that power sitting her talking to an old man! Go spend the rest of the evvening with your friends and play with your Boons.
+You'll be relying on them to join the guild."
+
+Skylar swallowed the sudden wave of anxiety and mock saluted.
+"Sir yes sir!" He bolted from his seat and was out the door before his father ccould chastise him for irreverence regarding the military.
 
 # Meeting Up
 
