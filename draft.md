@@ -325,6 +325,14 @@ The interior was muted, with lamps containing candles spaced a meter apart along
 While Lexie trudged through the tables toward the receptionist, with Skylar following behind quitely, Arthur made their presence known. "Heya, Allison!" Skylar was sure he was faking the sickly sweet positive tone to poke fun at the noticiably grump woman. "How are we doing this fine morning.
 Skylar saw that he wore a shit-eating grin and Arthur made no attempt to hide it as the receptionist looked up at them from the book splayed across the desk.
 The older woman brushed dirty blond hair out of her eyes as she looked up at them before frowning. "You brats are here too early, no one else is even up yet. Unless a rift appeared outside of town or someone is dying, scamper on outside and go play in the mud.
+Skylar fought to keep the smirk off of his face, as he knew he ws in for a good show.
+Lexie immediately tutted at the older woman, waving her finger with an air of authority. "We aren't kids anymore; we've got our Boons now. So we can sit inside here if we want."
+The woman stared at them for a moment, her face shifting through emotions too fast for Skylar to identify. Evetually though, a predatory smile borke across her face that sent a shiver down his spine. "That's right, you brats aren't so small anymore. You're practically adults!"
+Skylar wanted to interrupt whatever happened next, snesing a trap but Arthur was faster. "He stepped forward to stand beside Lexie, backing her up. "That's right, we'll be joining you guys on missions before you know it. We might as well hang out here inside, we'll be doing it alot in the future."
+Skylar really wanted to retreat  but this friends were in thre thick of it now and he wouldn't abandon them.
+The woman's eyes met theirs each in turn before clapping her hands, the smile on her face never changing. "Follow me, if you want to stay and wait here, you're not going to sit idle."
+Lexie and Arthur shared an excited smile and turned in sync back to him. Their faes stuttured when they met his. "What's wrong?" Lexie whishpered.
+Skylar shook his head at them, not wanting to poison th well if he was wrong. He put one hand on each of their shoulders and gently pushed the ahead, thinking that whatever came next wasn't going to be pleasant. The woman had chased them out of the hall their whole hildhood and swinigng their "weight" around first thing after getting their boons wasn't how he wold have gone about making a new relationship. He suspected they were going to be put through their paces. He'd done enough chores at home and on the neighbor's farms to reccognize the look of someone who'd found a sucker to push annoying work onto.
 
 # Book 2
 
